@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @fahthanyapat
+- 👀 I’m interested in photography
+- 🌱 I’m currently learning mba.
+- 💞️ I’m looking to collaborate on new creative projects.
